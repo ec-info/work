@@ -8,4 +8,3 @@ Era Connect adopte une approche flexible du travail, permettant à ses employés
 - **Engagement et performance** : Travailler à distance ne doit pas affecter la qualité du travail ni l'engagement envers les objectifs de l'entreprise. Des évaluations régulières permettent de garantir le bon déroulement des missions.
 - **Équilibre travail-vie personnelle** : Nous encourageons nos employés à organiser leur emploi du temps de manière à préserver leur bien-être et leur productivité.
 
-Ce document peut être mis à jour régulièrement afin de refléter l'évolution de nos pratiques et engagements.
